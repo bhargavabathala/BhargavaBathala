@@ -7,4 +7,4 @@
 
 📫 **Email:** chowdary.teja2001@gmail.com  
 🔗 **LinkedIn:**   
-💻 **Portfolio Projects:** See pinned repositories below ⬇️
+💻 **Portfolio Projects:** See pinned repositories below ⬇️ | Some more Coming soon – stay tuned!
