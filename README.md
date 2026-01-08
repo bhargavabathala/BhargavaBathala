@@ -6,5 +6,5 @@
 💡 Passionate about data-driven problem solving and continuous learning  
 
 📫 **Email:** chowdary.teja2001@gmail.com  
-🔗 **LinkedIn:**   
+🔗 **LinkedIn:**   https://www.linkedin.com/in/bhargava-bathala-02aa80396
 💻 **Portfolio Projects:** See pinned repositories below ⬇️ | Some more Coming soon – stay tuned!
