@@ -7,4 +7,5 @@
 
 📫 **Email:** chowdary.teja2001@gmail.com  
 🔗 **LinkedIn:**   https://www.linkedin.com/in/bhargava-bathala-02aa80396
+
 💻 **Portfolio Projects:** See pinned repositories below ⬇️ | Some more Coming soon – stay tuned!
